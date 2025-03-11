@@ -1,1 +1,1 @@
-# Branches-of-IT-sphare
+Направления в ИТ-сфере Гетерло Даниил 09:30 11.03.2025 create repository
